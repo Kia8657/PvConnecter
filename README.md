@@ -5,6 +5,6 @@
 این سورس توسط ادمین اوپن شده و کاملترین سورس موجوده
 
 برای آموزش ران کردن به 
-<a href="http://www.telegram.me/ImUnknow">ادمین</a>
+<a href="http://www.telegram.me/Kia8657">ادمین</a>
 پیام بدید
 
